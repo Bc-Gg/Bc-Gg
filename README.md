@@ -4,5 +4,5 @@
 - 🌱 I’m currently learning some Math.
 - 💬 Ask me about anything about Xiamen University Curriculum. 
 - 📫 How to reach me: liubenchen18@163.com (I will respond as soon as possilbe.
-- I'm interested in Fincial Engineering.
+- I'm interested in Financial Engineering.
 - 24Fall Uchicago MSFM
